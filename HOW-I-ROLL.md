@@ -1,5 +1,5 @@
 ## Partying for Open Science
-# Send GIF love to Dr. Robinson and the #miniWOWPDX crew!
+# Sending GIF love to Dr. Robinson and the #miniWOWPDX crew!
 # Must stop...can't stop looking for moving pictures
 
 
