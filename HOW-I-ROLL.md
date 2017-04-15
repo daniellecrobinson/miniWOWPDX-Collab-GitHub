@@ -1,5 +1,9 @@
-# How-I-Roll
 ## Partying for Open Science
-### Women in Science
+# Send GIF love to Dr. Robinson and the #miniWOWPDX crew!
+# Must stop...can't stop looking for moving pictures
+
 
 ![](https://media.giphy.com/media/rnnINxmNOr17y/giphy.gif)
+![](https://media.giphy.com/media/8IJC8xggMWOiI/giphy.gif)
+![](https://media.giphy.com/media/U7uxhOBei9UnS/giphy.gif)
+![](https://media.giphy.com/media/26FLhDoSzv4ig5qLu/giphy.gif)
